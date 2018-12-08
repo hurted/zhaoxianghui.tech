@@ -1,2 +1,0 @@
-# zhaoxianghui.tech
-zhaoxianghui.tech
